@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @EstefaniEspinoza41
+- 👀 Me interesa la industria tecnologica y el desarrorro de aplicaciones web
+- 🌱 Altualmente estoy aprendiendo nuevas metologias para llevar en equipo el desarrollo de nuevas aplicaciones Web
+- 💞️ Actualmente me encuentro trabajando en la industria electrica.
+- 📫 Me pueden contactar por mi correo electronico estefaniespinoza41@gmail.com 
+- O visitar mi pagina de Linkedln https://www.linkedin.com/in/estefani-talia-espinoza-dias-71181318b/
